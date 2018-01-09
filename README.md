@@ -1,2 +1,0 @@
-# Arslanhayatgujjar
-GitHub Pages
